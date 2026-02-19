@@ -1,5 +1,5 @@
 ![1000000075](https://github.com/user-attachments/assets/e3163c5d-f9d6-49b4-b84b-21675180c690)
-# 𐂯 . 𝔍𝔬𝔳𝔦𝔞𝔥 / 𝑉𝑦𝑟𝑒𝑛 .♱
+# 𐂯 . 𝔍𝔬𝔳𝔦𝔞𝔥 / 𝒫𝑖𝑒𝑟𝑐𝑒.♱
 
 <!--
 **voodoulism/voodoulism** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
