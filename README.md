@@ -1,4 +1,5 @@
-<img width="969" height="252" alt="1000000095" src="https://github.com/user-attachments/assets/f487bd0a-ea1e-49d9-9945-eed7e6c81068" />
+<img width="930" height="252" alt="1000000095" src="https://github.com/user-attachments/assets/71b8adc5-2e87-435f-b4fd-af988ea3dd0c" />
+
 
 
 <   . ⋉ .       𐂯 . 𝔍𝔬𝔳𝔦𝔞𝔥 / 𝒫 𝑖𝑒𝑟𝑐𝑒.♱
